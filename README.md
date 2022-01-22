@@ -1,0 +1,1 @@
+# fastnicky69.github.io
